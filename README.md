@@ -1,0 +1,4 @@
+Fotografi adalah kegiatan yang sangat menyenangkan. Kita dapat mengabadikan berbagai peristiwa spesial yang terjadi di sekitar kita lewat foto. Apalagi jika hobi tersebut dijadikan sebagai sebuah bisnis. Berawal dari kecintaannya pada dunia fotografi, abdurrachman akhirnya memberanikan diri untuk membuka sebuah usaha tentang fotografi yang diberi nama RHMN ID photography. Usaha yang sudah di rintis dari tahun 2018 ini melayani jasa dokumentasi pernikahan, acara perusahaan dan juga photo booth.
+
+Awal mulanya, ABDURRACHMAN menjalankan bisnis fotografi ini sambil bekerja. Ia mengungkapkan kalau pada awalnya bisnis ini hanya sebatas pekerjaan sampingan saja. Hingga pada akhirnya abdurrachman mengambil keputusan untuk berhenti bekerja agar bisa mengurus bisnis fotografinya ini secara penuh. Keputusan tersebut yang akhirnya membawa rhmn id photography menjadi semakin sukses sampai sekarang ini.
+
